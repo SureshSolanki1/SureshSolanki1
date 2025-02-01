@@ -4,4 +4,3 @@
 - 💞️ Looking for a Job in CyberSec !
 - 📫 How to reach me : linkedin.com/in/sureshsolanki
 - 😄 Pronouns: Born to Crack !
-
